@@ -13,7 +13,7 @@ $ python wa.py
 ```
 > Get Token [click here](https://bit.ly/TokenSpamWa)
 ## Support Me On
-<b>• [Facebook](https://m.facebook.com/dhasilva.junior.3)</b>
+<b>• [Group Wa](http://chat.whatsapp.com/LMDWmqNiFLoB1axbTO3Ume)</b>
 <br>
-<b>• [Youtube](https://www.youtube.com/channel/UCLRXFyMN0L8yH9F-xxOd7Og)</b>
+<b>• [Contact me](http://wa.me/6288219947210)</b>
 </br>
